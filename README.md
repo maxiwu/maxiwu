@@ -13,5 +13,6 @@ Here are some ideas to get you started:
 - ~~🤔 I’m looking for help with artwork, sprite sheet, 3D models.~~
 - 💬 Ask me about anything
 - 📫 How to reach me: Facebook/Twitter/Gmail/Github
-- ⚡ Fun fact: I am a dad and don't have much time playing games. But I spend my precious free time playing guitar. ~~making crappy game prototype.~~
+- ✨ I enjoy basketball and movie. Especially si-fi stuff.
+- ⚡ Fun fact: I am a gamer who doesn't have time to play game. ~~making crappy game prototype.~~
 
